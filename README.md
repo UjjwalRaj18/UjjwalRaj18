@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @UjjwalRaj18
+- 👋 Hi, I’m Ujjwal Raj 
 - 👀 I’m interested in Coding and interacting with new people.
 - 🌱 I’m currently learning C and Elm .
 - 💞️ I’m looking to collaborate on various projects that , I am gonna come across my University life .
