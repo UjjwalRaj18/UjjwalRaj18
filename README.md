@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Ujjwal Raj
-- 👀 I’m interested in Coding and interacting with new people.
-- 🌱 I’m currently in My Third Year of Computer Science at McMaster University. 
-- 💞️ I’m looking forward to collaborate on various projects, I am going to come across my University life.
+- 👀 I’m interested in Coding and Socialising.
+- I do like to read books, currently i am reading - Thinking, Fast and Slow.
+- 🌱 I’m currently in My Third Year of Computer Science at McMaster University.
 - 📫 You can reach to me via ujjwalraj2003@outlook.com.
 
 <!---
