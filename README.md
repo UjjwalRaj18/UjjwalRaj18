@@ -6,7 +6,8 @@
 - 🌱 I’m currently in My Third Year of Computer Science Coop at McMaster University, I have come in Deans' list in 2021.
 - Courses taken this fall semester - COMPSCI 3IS3,COMPSCI 3SH3,COMPSCI 3MI3,STATS 2D03.
 - In 3MI3, We are relearning Haskell where in we do have to make test cases, while coding. We are being taught Prolog.
-- Recent movie watched - Oppenheimer. 
+- Recent movie watched - Oppenheimer.
+- to get to know more about me let's connect on linkedin. Thanks!
 - Seeking Coop Opportunities for 2024. 
 - 📫 You can reach to me via ujjwalraj2003@outlook.com.
 
