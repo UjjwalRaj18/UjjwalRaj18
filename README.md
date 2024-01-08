@@ -1,5 +1,6 @@
 - 👋 Hi, I’m Ujjwal Raj (He/Him) 3rd Yr CompSci Co-Op Student @McMasterU
 - 👀 I’m interested in Coding and Socialising.
+- Humanity above everything
 - I do like to read books, currently I am reading - Thinking, Fast and Slow(5 pages per day).
 - Fav novel would be Sherlock Holmes.
 - Recently I have lost 32 pounds by being on a calorie deficit diet and going to the gym. 
