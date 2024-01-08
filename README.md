@@ -6,7 +6,7 @@
 - 🌱 I’m currently in My Third Year of Computer Science Coop at McMaster University, I have come in Deans' list in 2021-2022 & Successfully Completed MacChangers in 2022-2023(In a team of 4).
 - Courses taken this Winter semester 2024 - COMPSCI 3DM3,COMPSCI 3AC3,COMPSCI 3N03,COMPSCI 3TB3.
 - Recent movie watched - Oppenheimer(Christopher Nolan).
-- to get to know more about me let's connect on linkedin. Thanks!
+- To get to know more about me let's connect on linkedin. Thanks!
 - Seeking Coop Opportunities for 2024.
 - Hobbies:Hiking,Reading,Cooking,Soicalising.
 - Polite+Confident+Extroverted+Diligent+Team Player+Observant+Professional. 
