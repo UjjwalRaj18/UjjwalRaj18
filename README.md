@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Ujjwal Raj (He/Him)
+- 👋 Hi, I’m Ujjwal Raj (He/Him) 3rd Yr CompSci Co-Op Student @McMasterU
 - 👀 I’m interested in Coding and Socialising.
 - I do like to read books, currently I am reading - Thinking, Fast and Slow(5 pages per day).
 - Fav novel would be Sherlock Holmes.
