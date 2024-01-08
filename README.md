@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Ujjwal Raj
 - 👀 I’m interested in Coding and Socialising.
-- I do like to read books, currently I am reading - Thinking, Fast and Slow.
+- I do like to read books, currently I am reading - Thinking, Fast and Slow(5 pages per day).
 - Fav novel would be Sherlock Holmes.
 - Recently I have lost 32 pounds by being on a calorie deficit diet and going to the gym. 
 - 🌱 I’m currently in My Third Year of Computer Science Coop at McMaster University, I have come in Deans' list in 2021-2022 & Successfully Completed MacChangers in 2023(With a team of 4).
@@ -8,7 +8,7 @@
 - Recent movie watched - Oppenheimer.
 - to get to know more about me let's connect on linkedin. Thanks!
 - Seeking Coop Opportunities for 2024.
-- Polite+Confident+Extroverted+Diligent+Team Player. 
+- Polite+Confident+Extroverted+Diligent+Team Player+Observant. 
 - 📫 You can reach to me via ujjwalraj2003@outlook.com.
 
 <!---
