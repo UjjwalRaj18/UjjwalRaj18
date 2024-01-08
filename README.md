@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Ujjwal Raj
+- 👋 Hi, I’m Ujjwal Raj (He/Him)
 - 👀 I’m interested in Coding and Socialising.
 - I do like to read books, currently I am reading - Thinking, Fast and Slow(5 pages per day).
 - Fav novel would be Sherlock Holmes.
