@@ -3,9 +3,8 @@
 - I do like to read books, currently I am reading - Thinking, Fast and Slow.
 - Fav novel would be Sherlock Holmes.
 - Recently I have lost 32 pounds by being on a calorie deficit diet and hitting the gym. 
-- 🌱 I’m currently in My Third Year of Computer Science Coop at McMaster University, I have come in Deans' list in 2021.
-- Courses taken this fall semester - COMPSCI 3IS3,COMPSCI 3SH3,COMPSCI 3MI3,STATS 2D03.
-- In 3MI3, We are relearning Haskell where in we do have to make test cases, while coding. We are being taught Prolog.
+- 🌱 I’m currently in My Third Year of Computer Science Coop at McMaster University, I have come in Deans' list in 2021-2022.
+- Courses taken this Winter semester 2024 - COMPSCI 3DM3,COMPSCI 3AC3,COMPSCI 3N03,COMPSCI 3TB3.
 - Recent movie watched - Oppenheimer.
 - to get to know more about me let's connect on linkedin. Thanks!
 - Seeking Coop Opportunities for 2024. 
