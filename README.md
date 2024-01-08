@@ -8,7 +8,7 @@
 - Recent movie watched - Oppenheimer.
 - to get to know more about me let's connect on linkedin. Thanks!
 - Seeking Coop Opportunities for 2024.
-- polite+confident+extroverted. 
+- Polite+Confident+Extroverted. 
 - 📫 You can reach to me via ujjwalraj2003@outlook.com.
 
 <!---
