@@ -10,7 +10,7 @@
 - Seeking Coop Opportunities for Summer 2024.
 - Hobbies:Hiking,Reading,Cooking,Soicalising.
 - 20 yrs old.
-- Extracurricular activities : Gym,Badminton,Hiking,Sponsorship Exec at Deltahacks(McMaster Hackathon Club).
+- Extracurricular activities : Gym,Badminton,Hiking,Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1.
 - Soft Skils: Polite+Confident+Ambivert/Extrovert(on situations)+Diligent+Team Player+Professional+Time Management+Logical & Critical Analytical Thinking.
 - Hardwork Beats Talent.
 - 📫 You can reach to me via ujjwalraj2003@outlook.com.
