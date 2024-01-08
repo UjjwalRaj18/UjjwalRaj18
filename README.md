@@ -11,7 +11,7 @@
 - Hobbies:Hiking,Reading,Cooking,Soicalising.
 - 20 yrs old.
 - Extracurricular activities : Gym,Badminton,Hiking.
-- Currently Sponsorship Exec at Deltahacks(McMaster Educational Club).
+- Currently Sponsorship Exec at Deltahacks(McMaster Hackathon Club).
 - Polite+Confident+Extroverted+Diligent+Team Player+Observant+Professional.
 - Hardwork Beats Talent.
 - 📫 You can reach to me via ujjwalraj2003@outlook.com.
