@@ -7,7 +7,7 @@
 - Courses taken this Winter semester 2024 - COMPSCI 3DM3,COMPSCI 3AC3,COMPSCI 3N03,COMPSCI 3TB3.
 - Recent movie watched - Oppenheimer(Christopher Nolan).
 - To get to know more about me let's connect on linkedin. Thanks!
-- Seeking Coop Opportunities for 2024.
+- Seeking Coop Opportunities for Summer 2024.
 - Hobbies:Hiking,Reading,Cooking,Soicalising.
 - 20 yrs old.
 - Polite+Confident+Extroverted+Diligent+Team Player+Observant+Professional.
