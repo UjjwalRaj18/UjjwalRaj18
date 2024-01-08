@@ -10,6 +10,7 @@
 - Seeking Coop Opportunities for Summer 2024.
 - Hobbies:Hiking,Reading,Cooking,Soicalising.
 - 20 yrs old.
+- Extracurricular activities : Gym,Badminton,Hiking.
 - Polite+Confident+Extroverted+Diligent+Team Player+Observant+Professional.
 - Hardwork Beats Talent.
 - 📫 You can reach to me via ujjwalraj2003@outlook.com.
