@@ -9,6 +9,7 @@
 - To get to know more about me let's connect on linkedin. Thanks!
 - Seeking Coop Opportunities for 2024.
 - Hobbies:Hiking,Reading,Cooking,Soicalising.
+- 20 yrs old.
 - Polite+Confident+Extroverted+Diligent+Team Player+Observant+Professional. 
 - 📫 You can reach to me via ujjwalraj2003@outlook.com.
 
