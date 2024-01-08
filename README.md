@@ -11,7 +11,7 @@
 - Hobbies:Hiking,Reading,Cooking,Soicalising.
 - 20 yrs old.
 - Polite+Confident+Extroverted+Diligent+Team Player+Observant+Professional.
-- Hardwork beats Talent.
+- Hardwork Beats Talent.
 - 📫 You can reach to me via ujjwalraj2003@outlook.com.
 
 <!---
