@@ -11,7 +11,7 @@
 Hobbies:Hiking,Reading,Cooking,Soicalising.
 - 20 yrs old.
 - Extracurricular activities : Gym,Badminton,Hiking,Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1,Soccer.
-- Soft Skils: Polite+Confident+Ambivert/Extrovert(on situations)+Diligent+Team Player+Professional+Time Management+Logical & Critical Analytical Thinking.
+- Soft Skils: Polite+Confident+Ambivert/Extrovert(on situations)+Diligent+Team Player+Professional+Time Management+Logical & Critical Analytical Thinking+ mature.
 - Hardwork Beats Talent.
 - 📫 You can reach to me via ujjwalraj2003@outlook.com.
 - To get to know more about me let's connect on linkedin. Thanks!
