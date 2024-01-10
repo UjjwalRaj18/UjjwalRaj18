@@ -3,7 +3,7 @@
 - Humanity above everything.
 - I do like to read books, currently I am reading - Thinking, Fast and Slow(5 pages per day).
 - Fav novel would be Sherlock Holmes.
-- Recently I have lost 32 pounds by being on a calorie deficit diet and going to the gym. 
+- Recently I have lost 32 pounds by being on a calorie deficit diet and going to the gym 🏋️‍♀️. 
 - 🌱 I’m currently in My Third Year of Computer Science Coop at McMaster University, I have come in Deans' list in 2021-2022(written on transcript)& Successfully Completed MacChangers(offered by faculty of engineering-Achieved Completion Certificate for the same)in 2022-2023(In a team of 4). Current Academic Standing : Good Standing(as on transcript🧿).
 - I don't use Msafs
 - Courses taken this Winter semester 2024: 🧿COMPSCI 3DM3,COMPSCI 3AC3,COMPSCI 3N03,COMPSCI 3TB3🧿.
@@ -11,9 +11,9 @@
 - Seeking Coop Opportunities for Summer 2024.
 Hobbies:Hiking,Reading,Cooking,Soicalising.
 - 20 yrs old.
-- currently learning about lexical analysis.
-- Extracurricular activities : Gym,Badminton,Hiking,Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1,Soccer.
-- Soft Skils: Polite+Confident+Ambivert/Extrovert(on situations)+Diligent+Team Player+Professional+Time Management+Logical & Critical Analytical Thinking+ Adaptable + Communication Skills + Sincere .
+- Currently learning about lexical analysis.
+- Extracurricular activities : Gym,Badminton,Hiking,Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1,Soccer,Cricket,Tennis.
+- Soft Skils: Polite+Confident+Ambivert/Extrovert(on situations)+Diligent+Team Player+Professional+Time Management+Logical & Critical Analytical Thinking+ Adaptable + Communication Skills + Sincere 😎.
 - I am Honest.
 - Grade 10:90%,12:92%(Physics,Chemistry,Maths,Comp Sci,English)
 - I am mature.
