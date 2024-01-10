@@ -13,13 +13,13 @@ Hobbies:Hiking,Reading,Cooking,Soicalising.
 - currently learning about lexical analysis.
 - Extracurricular activities : Gym,Badminton,Hiking,Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1,Soccer.
 - Soft Skils: Polite+Confident+Ambivert/Extrovert(on situations)+Diligent+Team Player+Professional+Time Management+Logical & Critical Analytical Thinking+ Adaptable.
-- Grade 10:90%,12:92%(Physics,chemistry,Maths,Comp sci,English)
+- Grade 10:90%,12:92%(Physics,Chemistry,Maths,Comp Sci,English)
 - I am mature.
 - Hardwork Beats Talent.
 - Jolly nature 😁😁
 - 📫 You can reach to me via ujjwalraj2003@outlook.com.
 - To get to know more about me let's connect on linkedin.
-- Hustling at the moment.
+- Hustling at the moment+Ambitious.
 - Heartfelt Thanks for reading the above, Looking forward to chat ☺️!
 
 <!---
