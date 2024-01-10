@@ -16,6 +16,7 @@ Hobbies:Hiking,Reading,Cooking,Soicalising.
 - Grade 10:90%,12:92%(Physics,chemistry,Maths,Comp sci,English)
 - I am mature.
 - Hardwork Beats Talent.
+- Jolly nature 😁😁
 - 📫 You can reach to me via ujjwalraj2003@outlook.com.
 - To get to know more about me let's connect on linkedin.
 - Hustling at the moment.
