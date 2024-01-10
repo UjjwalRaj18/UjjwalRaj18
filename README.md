@@ -13,7 +13,7 @@ Hobbies:Hiking,Reading,Cooking,Soicalising.
 - 20 yrs old.
 - currently learning about lexical analysis.
 - Extracurricular activities : Gym,Badminton,Hiking,Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1,Soccer.
-- Soft Skils: Polite+Confident+Ambivert/Extrovert(on situations)+Diligent+Team Player+Professional+Time Management+Logical & Critical Analytical Thinking+ Adaptable + Communication Skills.
+- Soft Skils: Polite+Confident+Ambivert/Extrovert(on situations)+Diligent+Team Player+Professional+Time Management+Logical & Critical Analytical Thinking+ Adaptable + Communication Skills + Sincere .
 - I am Honest.
 - Grade 10:90%,12:92%(Physics,Chemistry,Maths,Comp Sci,English)
 - I am mature.
