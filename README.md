@@ -1,5 +1,6 @@
 - 👋 Hi, I’m Ujjwal Raj (He/Him) 🧿3rd Yr CompSci Co-Op Student @McMasterU
 - 👀 I’m interested in Coding and Socialising.
+- Currently learning about lexical analysis.
 - Humanity above everything.
 - I do like to read books, currently I am reading - Thinking, Fast and Slow(5 pages per day).
 - Fav novel would be Sherlock Holmes.
@@ -11,7 +12,6 @@
 - Seeking Coop Opportunities for Summer 2024.
 Hobbies:Hiking⛰️,Reading,Cooking,Soicalising.
 -20 yrs old.
-- Currently learning about lexical analysis.
 - Extracurricular activities : Gym,Badminton🏸,Hiking,Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1,Soccer,Cricket,Tennis.
 - Soft Skils: Polite+Confident+Ambivert/Extrovert(on situations)+Diligent+Team Player+Professional+Time Management+Logical & Critical Analytical Thinking+ Adaptable + Communication Skills + Sincere 😎.
 - I am Honest.
