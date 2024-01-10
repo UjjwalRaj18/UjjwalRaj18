@@ -9,10 +9,10 @@
 - Courses taken this Winter semester 2024: 🧿COMPSCI 3DM3,COMPSCI 3AC3,COMPSCI 3N03,COMPSCI 3TB3🧿.
 - Recent movie watched : Oppenheimer(Christopher Nolan).
 - Seeking Coop Opportunities for Summer 2024.
-Hobbies:Hiking,Reading,Cooking,Soicalising.
-- 20 yrs old.
+Hobbies:Hiking⛰️,Reading,Cooking,Soicalising.
+-20 yrs old.
 - Currently learning about lexical analysis.
-- Extracurricular activities : Gym,Badminton,Hiking,Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1,Soccer,Cricket,Tennis.
+- Extracurricular activities : Gym,Badminton🏸,Hiking,Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1,Soccer,Cricket,Tennis.
 - Soft Skils: Polite+Confident+Ambivert/Extrovert(on situations)+Diligent+Team Player+Professional+Time Management+Logical & Critical Analytical Thinking+ Adaptable + Communication Skills + Sincere 😎.
 - I am Honest.
 - Grade 10:90%,12:92%(Physics,Chemistry,Maths,Comp Sci,English)
