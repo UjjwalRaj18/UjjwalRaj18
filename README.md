@@ -4,8 +4,8 @@
 - Humanity above everything.
 - I do like to read books, currently I am reading - Thinking, Fast and Slow(5 pages per day).
 - Fav novel would be Sherlock Holmes.
-- Recently I have lost 32 pounds by being on a calorie deficit diet and going to the gym 🏋️‍♀️(It took me 14 months). 
-- 🌱 I’m currently in My Third Year of Computer Science Coop at McMaster University, I have come in Deans' list in 2021-2022(written on transcript)& Successfully Completed MacChangers(offered by faculty of engineering-Achieved Completion Certificate for the same)in 2022-2023(In a team of 4). Current Academic Standing : Good Standing(as on transcript🧿).
+- Recently I have lost 32 pounds by being on a calorie deficit diet and going to the gym 🏋️‍♀️(It took me 14-15 months). 
+- 🌱 I’m currently in My Third Year of Computer Science Coop at McMaster University, I have come in Deans' list in 2021-2022(written on transcript)& Successfully Completed MacChangers(offered by faculty of engineering-Achieved Completion Certificate for the same)in 2022-2023(In a team of 4). Current Academic Standing : Good Standing (as on transcript🧿).
 - I Work on Deadlines. 
 - Courses taken this Winter semester 2024: 🧿COMPSCI 3DM3,COMPSCI 3AC3,COMPSCI 3N03,COMPSCI 3TB3🧿.
 - Recent movie watched : Oppenheimer(Christopher Nolan).
@@ -13,12 +13,12 @@
 Hobbies:Hiking⛰️,Reading,Cooking,Soicalising.
 -20 yrs old.
 - Extracurricular activities : Gym,Badminton🏸,Hiking,Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1,Soccer,Cricket,Tennis.
-- Soft Skils: Polite+Confident+Ambivert/Extrovert(on situations)+Diligent+Team Player+Professional+Time Management+Logical & Critical Analytical Thinking+ Adaptable + Communication Skills + Sincere 😎.
+- Soft Skils: Polite+Confident+ Ambivert/Extrovert(on situations)+ Diligent+Team Player+ Professional+ Time Management+ Logical & Critical Analytical Thinking+ Adaptable + Communication Skills + Sincere 😎. 
 - I am Honest.
 - Grade 10:90%,12:92%(Physics,Chemistry,Maths,Comp Sci,English)- Showed Progress. 
 - I am mature.
 - Hardwork Beats Talent.
-- Calm+ Jolly nature 😁😁
+- Calm + Jolly nature 😁😁
 - 📫 You can reach to me via ujjwalraj2003@outlook.com.
 - To get to know more about me let's connect on linkedin.
 - Hustling at the moment + Ambitious.
