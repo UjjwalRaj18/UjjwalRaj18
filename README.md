@@ -1,8 +1,8 @@
-- 👋 Hi, I’m Ujjwal Raj (He/Him) 🧿3rd Yr CompSci Co-Op Student @McMasterU
+- 👋 Hey, I’m Ujjwal Raj (He/Him) 🧿3rd Yr CompSci Co-Op Student @McMasterU
 - 👀 I’m interested in Coding and Socialising.
 - Currently learning about the hardware and the software side of the Computer. 
 - Humanity above everything.
-- I do like to read books, currently I am reading - Thinking, Fast and Slow(5 pages per day).
+- I do like to read books, currently I am reading - Thinking, Fast and Slow(5 pages per day with notes).
 - Fav novel would be Sherlock Holmes.
 - Trying to be a frequent chess player (new good addiction). 
 - Fav Documentry would be Social Network/Blackberry.
@@ -18,7 +18,7 @@ Hobbies:Hiking⛰️,Reading,Cooking,Soicalising.
 - Soft Skils: Polite+Confident+ Ambivert/Extrovert(on situations)+ Diligent+Team Player+ Professional+ Time Management+ Logical & Critical Analytical Thinking+ Adaptable + Communication Skills + Sincere 😎. 
 - I am Honest.
 - Grade 10:90%,12:92%(Physics,Chemistry,Maths,Comp Sci,English)- Showed Progress. 
-- I am mature.
+- Matured early haha.
 - Hardwork Beats Talent.
 - Calm + Jolly nature 😁😁
 - 📫 You can reach to me via ujjwalraj2003@outlook.com.
