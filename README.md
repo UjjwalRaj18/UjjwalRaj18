@@ -19,7 +19,7 @@ Hobbies:Hiking⛰️,Reading,Cooking,Soicalising.
 - I am Honest.
 - Grade 10:90%,12:92%(Physics,Chemistry,Maths,Comp Sci,English)- Showed Progress. 
 - Matured early haha.
-- Positive solitude for 2 hours in a day gets me going . 
+- Positive solitude with music for 2 hours in a day gets me going . 
 - Hardwork Beats Talent.
 - Calm + Jolly nature 😁😁
 - 📫 You can reach to me via ujjwalraj2003@outlook.com.
