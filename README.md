@@ -1,7 +1,7 @@
 - 👋 Hey, I’m Ujjwal Raj (He/Him) 🧿3rd Yr CompSci Co-Op Student @McMasterU
 - Seeking Coop Opportunities for Summer 2024 Available for 4/8/12/16 months (preferably for 12 - 16 months enrolled in Coop program).
 - 👀 I’m interested in Computer science (both theoretical and software) and Socialising.
-- Currently learning about the hardware theory and the software side of the Computer as per the course. =
+- Currently learning about the hardware theory and the software side of the Computer as per the course.
 - Recently I have lost 32 pounds by being on a calorie deficit diet and going to the gym 🏋️‍♀️(It took me 14-15 months). 
 - 🌱 I’m currently in My Third Year of Computer Science Coop at McMaster University, I have come in Deans' list in 2021-2022(written on transcript)& Successfully Completed MacChangers(offered by faculty of engineering-Achieved Completion Certificate for the same)in 2022-2023(In a team of 4-team player). Current Academic Standing : Good Standing (as on transcript🧿).
 - Receipent Of Engineering Award Of Excellence - CA$3000 in 2021 (Top 10% of admission average 2021- Faculty Of Engineering).
