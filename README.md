@@ -1,7 +1,7 @@
 - 👋 Hey, I’m Ujjwal Raj (He/Him) 🧿3rd Yr CompSci Co-Op Student @McMasterU
 - Seeking Coop Opportunities for Summer 2024 Available for 4/8/12/16 months (preferably for 12 - 16 months).
 - 👀 I’m interested in Computer science (both theoretical and software) and Socialising.
-- Currently learning about the hardware theory and the software side of the Computer. 
+- Currently learning about the hardware theory and the software side of the Computer as per the course. 
 - Humanity above everything.
 - I do like to read books, currently I am reading - Thinking, Fast and Slow(5 pages per day with notes).
 - Fav novel would be Sherlock Holmes.
