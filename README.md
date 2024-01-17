@@ -14,7 +14,7 @@
 - Seeking Coop Opportunities for Summer 2024.
 - Hobbies:Hiking⛰️,Reading,Cooking,Soicalising.
 -20 yrs old.
-- Extracurricular activities : Gym,Badminton🏸(When time is available),Hiking(summer,can't do winter),Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1,Soccer,Cricket,Tennis.
+- Extracurricular activities : Gym,Badminton🏸(When time is available),Hiking(summer,can't do winter),Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1 (Personal preference - Lewis Hamilton) ,Soccer, Cricket, Tennis.
 - Soft Skils: Polite+Confident+ Ambivert/Extrovert(on situations)+ Diligent+Team Player+ Professional+ Time Management+ Logical & Critical Analytical Thinking+ Adaptable + Communication Skills + Sincere 😎. 
 - I am Honest.
 - Grade 10:90%,12:92%(Physics,Chemistry,Maths,Comp Sci,English)- Showed Progress. 
