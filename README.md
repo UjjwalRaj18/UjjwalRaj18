@@ -17,7 +17,7 @@
 - Extracurricular activities : Gym,Badminton🏸(When time is available),Hiking(summer,can't do winter),Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1 (Personal preference - Lewis Hamilton) ,Soccer, Cricket, Tennis.
 - Soft Skils: Polite+Confident+ Ambivert/Extrovert(on situations)+ Diligent+Team Player+ Professional+ Time Management+ Logical & Critical Analytical Thinking+ Adaptable + Communication Skills + Sincere 😎. 
 - I am Honest.
-- Grade 10:90%,12:92%(Physics,Chemistry,Maths,Comp Sci,English)- Showed Progress. 
+- Grade 10:90%,12:92%(Physics,Chemistry,Maths,Comp Sci,English)- On marksheet. 
 - Matured early haha.
 - Positive solitude . 
 - Hardwork Beats Talent.
