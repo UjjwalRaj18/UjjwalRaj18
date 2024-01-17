@@ -17,7 +17,7 @@
 - Soft Skils: Polite+Confident+ Ambivert/Extrovert(on situations)+ Diligent+Team Player+ Professional+ Time Management+ Logical & Critical Analytical Thinking+ Adaptable + Communication Skills + Sincere 😎. 
 - I am Honest.
 - Grade 10:90%,12:92%(Physics,Chemistry,Maths,Comp Sci,English)- On marksheet. 
-- Matured early haha.
+- Matured early .
 - Positive solitude .
 - Former cricketer (school level - U13/U16)
 - Calm + Jolly nature 😁😁
