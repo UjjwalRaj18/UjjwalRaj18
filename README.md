@@ -11,7 +11,7 @@
 - I Work on Deadlines. 
 - Courses taken this Winter semester 2024: 🧿COMPSCI 3DM3,COMPSCI 3AC3,COMPSCI 3N03,COMPSCI 3TB3🧿.
 - Recent movie watched : Oppenheimer(Christopher Nolan).
-- Seeking Coop Opportunities for Summer 2024.
+- Seeking Coop Opportunities for Summer 2024 Available for 4/8/12/16 months (preferably for 12 - 16 months).
 - Hobbies:Hiking⛰️,Reading,Cooking,Soicalising.
 -20 yrs old.
 - Extracurricular activities : Gym,Badminton🏸(When time is available),Hiking(summer,can't do winter),Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1 (Personal preference - Lewis Hamilton) ,Soccer, Cricket, Tennis.
