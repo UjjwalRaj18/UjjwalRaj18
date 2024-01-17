@@ -19,7 +19,8 @@
 - I am Honest.
 - Grade 10:90%,12:92%(Physics,Chemistry,Maths,Comp Sci,English)- On marksheet. 
 - Matured early haha.
-- Positive solitude . 
+- Positive solitude .
+- Former cricketer (school level)
 - Hardwork Beats Talent.
 - Calm + Jolly nature 😁😁
 - 📫 You can reach to me via ujjwalraj2003@outlook.com or if you want to go hiking let me know.
