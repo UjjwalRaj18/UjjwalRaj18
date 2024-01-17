@@ -22,7 +22,7 @@
 - Positive solitude . 
 - Hardwork Beats Talent.
 - Calm + Jolly nature 😁😁
-- 📫 You can reach to me via ujjwalraj2003@outlook.com.
+- 📫 You can reach to me via ujjwalraj2003@outlook.com or if you want to go hiking let me know.
 - To get to know more about me let's connect on linkedin.
 - Hustling at the moment + Ambitious.
 - Heartfelt Thanks for reading the above, Looking forward to chat ☺️!
