@@ -4,7 +4,7 @@
 - Currently learning about the hardware theory and the software side of the Computer as per the course.
 - Recently I have lost 32 pounds by being on a calorie deficit diet and going to the gym 🏋️‍♀️(It took me 14-15 months). 
 - 🌱 I’m currently in My Third Year of Computer Science Coop at McMaster University, I have come in Deans' list in 2021-2022(written on transcript)& Successfully Completed MacChangers(offered by faculty of engineering-Achieved Completion Certificate for the same)in 2022-2023(In a team of 4-team player). Current Academic Standing : Good Standing (as on transcript🧿).
-- Receipent Of Engineering Award Of Excellence - CA$3000 in 2021 (Top 10% of admission average 2021- Faculty Of Engineering).
+- Receipent Of Engineering Award Of Excellence - CA$3000 in 2021 (Top 10% of admission average 2021- Faculty Of Engineering At McMaster University).
 - Courses taken this Winter semester 2024: 🧿COMPSCI 3DM3,COMPSCI 3AC3,COMPSCI 3N03,COMPSCI 3TB3🧿.
 - I Work on Deadlines.
 - Humanity above everything.
