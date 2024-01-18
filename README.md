@@ -10,10 +10,9 @@
 - I do like to read books, currently I am reading - Thinking, Fast and Slow(5 pages per day with notes).
 - Trying to be a frequent chess player (new good addiction). 
 - Fav Documentry would be Social Network/Blackberry.
-- Hobbies:Hiking⛰️(only summer),Reading,Cooking,Soicalising.
 -20 yrs old.
 - Extracurricular activities : Gym,Badminton🏸(When time is available),Hiking(summer,can't do winter),Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1 (Personal preference - Lewis Hamilton) ,Soccer, Cricket, Tennis.
-- Soft Skils: Polite+Confident+ Ambivert/Extrovert(on situations)+ Diligent+Team Player+ Professional+ Time Management+ Logical & Critical Analytical Thinking+ Adaptable + Communication Skills + Sincere 😎. 
+- Soft skiils: Polite,adaptable,critical thinking and logical. 
 - I am Honest.
 - Grade 10:90%,12:92%(Physics,Chemistry,Maths,Comp Sci,English)- On marksheet. 
 - Matured early .
