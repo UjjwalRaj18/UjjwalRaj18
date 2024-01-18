@@ -10,6 +10,7 @@
 - I do like to read books, currently I am reading - Thinking, Fast and Slow(5 pages per day with notes).
 - Trying to be a frequent chess player (new good addiction). 
 - Fav Documentry would be Social Network/Blackberry.
+- Always there to help my friends.
 -20 yrs old.
 - Extracurricular activities : Gym,Badminton🏸(When time is available),Hiking(summer,can't do winter),Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1 (Personal preference - Lewis Hamilton) ,Soccer, Cricket, Tennis.
 - Soft skiils: Polite,adaptable,critical thinking and logical. 
