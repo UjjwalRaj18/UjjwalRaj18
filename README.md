@@ -1,5 +1,5 @@
 - 👋 Hey, I’m Ujjwal Raj (He/Him) 🧿3rd Yr CompSci Co-Op Student @McMasterU - Humanity above everything.
--  IQ of 122 at the age of 20 yrs got the certificate too 😌 .
+-  IQ of 122 - got the certificate too 😌 .
 - Fav sitcom would be Big Bang Theory 
 - Seeking Coop Opportunities for Summer 2024 Available for 4/8/12/16 months (preferably for 12 - 16 months enrolled in Coop program).
 - 👀 I’m interested in Computer science (both theoretical and software) and Socialising.
