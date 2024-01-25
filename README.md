@@ -11,6 +11,7 @@
 - 20 yrs old.
 - Courses taken this Winter semester 2024: 🧿COMPSCI 3DM3,COMPSCI 3AC3,COMPSCI 3N03,COMPSCI 3TB3🧿.
 - I Work on Deadlines.
+- Heat waves with iann dior is better hahah 😌
 - I do like to read books, currently I am reading - Thinking, Fast and Slow(5 pages per day with notes).
 - Trying to be a frequent chess player (new good addiction). 
 - Fav Documentry would be Social Network/Blackberry.
