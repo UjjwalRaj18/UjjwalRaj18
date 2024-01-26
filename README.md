@@ -10,22 +10,17 @@
 - Soft skiils: Polite,adaptable,critical thinking and logical.
 - 20 yrs old.
 - Courses taken this Winter semester 2024: 🧿COMPSCI 3DM3,COMPSCI 3AC3,COMPSCI 3N03,COMPSCI 3TB3🧿.
-- I Work on Deadlines.
-- Heat waves with iann dior is better hahah 😌
 - I do like to read books, currently I am reading - Thinking, Fast and Slow(5 pages per day with notes).
 - Trying to be a frequent chess player (new good addiction). 
 - Fav Documentry would be Social Network/Blackberry.
-- Always there to help my friends.
 - Extracurricular activities : Gym,Badminton🏸(When time is available),Hiking(summer,can't do winter),Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1 (Personal preference - Lewis Hamilton) ,Soccer, Cricket, Tennis.
 - I am Honest.
-- Grade 10:90%,12:92%(Physics,Chemistry,Maths,Comp Sci,English)- On marksheet. 
 - Matured early .
 - Positive solitude .
 - Former cricketer (school level - U13/U16)
 - Calm + Jolly nature 😁😁
 - 📫 You can reach to me via ujjwalraj2003@outlook.com or if you want to go hiking let me know.
 - To get to know more about me let's connect on linkedin.
-- Hustling at the moment + Ambitious.
 - Heartfelt Thanks for reading the above, Looking forward to chat ☺️!
 
 <!---
