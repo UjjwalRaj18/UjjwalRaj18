@@ -7,13 +7,13 @@
 - Recently I have lost 32 pounds by being on a calorie deficit diet and going to the gym 🏋️‍♀️(It took me 14-15 months). 
 - 🌱 I’m currently in My Third Year of Computer Science Coop at McMaster University, I have come in Deans' list in 2021-2022(written on transcript)& Successfully Completed MacChangers(offered by faculty of engineering-Achieved Completion Certificate for the same)in 2022-2023(In a team of 4-team player). Current Academic Standing : Good Standing (as on transcript🧿).
 - Receipent Of Engineering Award Of Excellence - CA$3000 in 2021 (Top 10% of admission average 2021- Faculty Of Engineering At McMaster University).
-- Soft skiils: Polite,adaptable,critical thinking and logical.
+- Soft skiils: Polite,adaptable,critical thinking and logical reasoning skills.
 - 20 yrs old.
 - Courses taken this Winter semester 2024: 🧿COMPSCI 3DM3,COMPSCI 3AC3,COMPSCI 3N03,COMPSCI 3TB3🧿.
 - I do like to read books, currently I am reading - Thinking, Fast and Slow(5 pages per day with notes).
 - Trying to be a frequent chess player (new good addiction). 
 - Fav Documentry would be Social Network/Blackberry.
-- Extracurricular activities : Gym,Badminton🏸(When time is available),Hiking(summer,can't do winter),Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1 (Personal preference - Lewis Hamilton) ,Soccer, Cricket, Tennis.
+- Extracurricular activities : Gym,Badminton🏸(When time is available),Hiking(summer,can't do winter),Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1 (Personal preference - Lewis Hamilton),Soccer, Cricket, Tennis.
 - I am Honest.
 - Matured early .
 - Positive solitude .
