@@ -1,6 +1,6 @@
 - 👋 Hey, I’m Ujjwal Raj (He/Him) 🧿3rd Yr CompSci Co-Op Student @McMasterU - Humanity above everything.
 -  IQ of 122 - got the certificate too 😌 .
--  I have my resume on the repository called as resume, Down for a resume roast.
+-  I have my resume on the repository called as resume.
 - Fav sitcom would be Big Bang Theory. 
 - Seeking Coop Opportunities for Summer 2024 Available for 4/8/12/16 months (preferably for 12 - 16 months enrolled in Coop program).
 - Currently learning about the hardware theory and the software side of the Computer as per the course.
