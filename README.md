@@ -12,7 +12,7 @@
 - Courses taken this Winter semester 2024: 🧿COMPSCI 3DM3,COMPSCI 3AC3,COMPSCI 3N03,COMPSCI 3TB3🧿.
 - I do like to read books, currently I am reading - Thinking, Fast and Slow(5 pages per day with notes). 
 - Fav Documentry would be Social Network/Blackberry.
-- Extracurricular activities : Gym,Badminton🏸(When time is available),Hiking(summer,can't do winter),Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1 (Personal preference - Lewis Hamilton),Soccer, Cricket, Tennis.
+- Extracurricular activities : Gym,Badminton🏸(When time is available),Hiking(summer,can't do winter),Sponsorship Exec at Deltahacks(McMaster Hackathon Club),watching F1 ,Soccer, Cricket, Tennis.
 - I am Honest.
 - Matured early .
 - Positive solitude .
