@@ -6,7 +6,7 @@
 - Soft skiils: Polite,adaptable,critical thinking and logical reasoning skills.
 - 20 yrs old.
 - Courses taken this Winter semester 2024: 🧿COMPSCI 3DM3,COMPSCI 3AC3,COMPSCI 3N03,COMPSCI 3TB3🧿.
-- I do like to read books, currently I am reading - Thinking, Fast and Slow(5 pages per day with notes).
+- Recently completed reading thinking, fast and slow.
 - honest.
 - Former cricketer (school level - U13/U16).
 - Fav documentary - Blackberry/Social Network
