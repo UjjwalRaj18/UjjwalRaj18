@@ -8,7 +8,8 @@
 - Courses taken this Winter semester 2024: 🧿COMPSCI 3DM3,COMPSCI 3AC3,COMPSCI 3N03,COMPSCI 3TB3🧿.
 - I do like to read books, currently I am reading - Thinking, Fast and Slow(5 pages per day with notes).
 - honest.
-- Former cricketer (school level - U13/U16)
+- Former cricketer (school level - U13/U16).
+- Fav documentary - Blackberry/Social Network
 - Calm + Jolly nature 😁😁
 - 📫 You can reach to me via ujjwalraj2003@outlook.com or if you want to go hiking let me know.
 - To get to know more about me let's connect on linkedin.
