@@ -1,6 +1,5 @@
 - 👋 Hey, I’m Ujjwal Raj (He/Him) 🧿3rd Yr CompSci Co-Op Student @McMasterU - Humanity above everything.
 -  IQ of 122 - got the certificate too 😌 .
--  I have my resume on the repository called as resume.
 - Seeking Coop Opportunities for Summer 2024 Available for 4/8/12/16 months (preferably for 12 - 16 months enrolled in Coop program).
 - Recently I have lost 32 pounds by being on a calorie deficit diet and going to the gym 🏋️‍♀️(It took me 14-15 months). 
 - 🌱 I’m currently in My Third Year of Computer Science Coop at McMaster University, I have come in Deans' list in 2021-2022(written on transcript)& Successfully Completed MacChangers(offered by faculty of engineering-Achieved Completion Certificate for the same)in 2022-2023(In a team of 4-team player).
