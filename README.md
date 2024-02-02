@@ -1,4 +1,4 @@
-- 👋 Hey, I’m Ujjwal Raj (He/Him) 🧿3rd Yr CompSci Co-Op Student @McMasterU - Humanity above everything.
+- 👋 Hey, I’m Ujjwal Raj (He/Him) 🧿3rd Yr CompSci Co-Op Student @McMasterU - Humanity above everything 🧿.
 -  IQ of 122 - got the certificate too 😌 .
 - Seeking Coop Opportunities for Summer 2024 Available for 4/8/12/16 months (preferably for 12 - 16 months enrolled in Coop program).
 - Recently I have lost 32 pounds by being on a calorie deficit diet and going to the gym 🏋️‍♀️(It took me 14-15 months). 
