@@ -1,4 +1,6 @@
-- 👋 Hey, I’m Ujjwal Raj (He/Him) 🧿3rd Yr CompSci Co-Op Student @McMasterU - Humanity above everything 🧿.
+- 👋 Hey, I’m Ujjwal Raj (He/Him) 🧿3rd Yr CompSci Co-Op Student @McMasterU
+- Humanity above everything 🧿, Always.
+- Deans List 2021-2022. 
 -  IQ of 122 - got the certificate too 😌 .
 - Recently completed reading thinking, fast and slow.
 - Fav documentary - Blackberry/Social Network
