@@ -5,7 +5,7 @@
 - Recently completed reading thinking, fast and slow.
 - Fav documentary - Blackberry/Social Network.
 - Recently Watched Documentary -  Oppenheimer. 
-- 📫 You can reach to me via ujjwalraj2003@outlook.com or if you wanna go hiking let me know.
+- 📫 You can reach to me via ujjwalraj2003@outlook.com or if you wanna go hiking let me know or wanna recco books.
 - To get to know more about me let's connect on linkedin.
 
 <!---
