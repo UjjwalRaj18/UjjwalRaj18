@@ -2,9 +2,7 @@
 - Humanity above Anything 🧿, Always. 
 - Deans List 2021-2022.
 - IQ of 122 - got the certificate too 😌 .
-- Recently completed reading thinking, fast and slow.
-- Fav documentary - Blackberry/Social Network.
-- Recently Watched Documentary -  Oppenheimer. 
+- Recently completed reading thinking, fast and slow. 
 - 📫 You can reach to me via ujjwalraj2003@outlook.com or if you wanna go hiking let me know or wanna recco books.
 - To get to know more about me let's connect on linkedin.
 
