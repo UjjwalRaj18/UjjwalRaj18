@@ -1,7 +1,7 @@
 - 👋 Hey, I’m Ujjwal Raj (He/Him) 🧿 Senior Year CompSci Student @McMaster University. 
 - Humanity above Anything 🧿, Always. 
 - Deans List 2021-2022.
-- IQ of 122 - got the certificate too 😌 .
+- IQ of 122.
 - 📫 You can reach out to me via ujjwalraj2003@outlook.com or via Linkedin. 
 
 <!---
