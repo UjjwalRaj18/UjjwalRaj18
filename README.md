@@ -1,5 +1,5 @@
-- 👋 Hey, I’m Ujjwal Raj (He/Him) 🧿 Senior Year CompSci Student @McMaster University.  
-- Deans List 2021-2022.
+- 👋 Hey, I’m Ujjwal Raj (He/Him) 🧿 Computer Science Graduate @McMaster University.  
+- Deans List 2021-2022 & 2024-2025.
 - IQ of 122.
 
 <!---
